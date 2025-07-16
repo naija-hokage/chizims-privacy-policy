@@ -1,1 +1,1 @@
-# chizims-naija-hokage-privacy-policy
+# privacy-policy
